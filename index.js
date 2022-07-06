@@ -3,6 +3,7 @@
    * Contact Me on wa.me/6285822347348
    * Follow https://github.com/Warikrr
    * Base Dika Ardnt
+   * KoKo•Rey✓
    * Jangan Diubah Author Nya
 */
 
